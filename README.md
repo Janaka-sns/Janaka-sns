@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Angular**
 
-- 📫 How to reach me **janakakumara.sns@gmail.com**
+- 📫 How to reach me **janakakumara.nsn@gmail.com**
 
 - ⚡ Fun fact **I am a Singer**
 
